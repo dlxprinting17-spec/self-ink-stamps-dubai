@@ -25,7 +25,6 @@ Deluxe Printing provides high-quality stamping solutions including custom stamps
 
 Explore more printing services here:
 
-- https://www.dlxprint.com
 - https://www.dlxprint.com/stamps-dubai.html
 - https://www.dlxprint.com
 
