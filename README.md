@@ -1,6 +1,6 @@
 # Self Ink Stamps Dubai
 
-<img src="https://www.dlxprint.com/images/self-ink-stamp.jpg" alt="Self Ink Stamps Dubai for Office Use" width="600">
+<img src="Self%20Ink%20Stamp.jpg" alt="Self Ink Stamps Dubai" width="600">
 
 Businesses in Dubai require professional and durable stamping solutions for daily office documentation. **Self ink stamps** are widely used because they provide quick, clean, and consistent impressions without the need for a separate ink pad.
 
